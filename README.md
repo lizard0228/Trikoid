@@ -1,0 +1,2 @@
+# Trikoid
+Berjayalah Tri Mokad
